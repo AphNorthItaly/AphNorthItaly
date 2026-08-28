@@ -1,6 +1,6 @@
 ## 🍝 Ciao !! 
 
-<img width="200" height="29" alt="Image" src="https://github.com/user-attachments/assets/92c1d0ca-5dc6-4e4c-a073-aad3e599d3ab" />
+<img width="350" height="29" alt="Image" src="https://github.com/user-attachments/assets/92c1d0ca-5dc6-4e4c-a073-aad3e599d3ab" />
 
 my name is Feliciano Vargas! you can call me Ita, Mätt or anything 😽
 I am a fictkin of Feliciano Vargas (Italy). if you're also a fictkin of him, PLEASE DNI! (kins please iwec)
