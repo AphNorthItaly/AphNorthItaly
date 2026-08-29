@@ -1,4 +1,5 @@
 ## 🍝 Ciao !! 
+<img width="240" height="20" alt="Image" src="https://github.com/user-attachments/assets/e3d65eb7-6d7a-4d5d-8bc0-6b6446adcbcf" />
 
 <img width="350" height="29" alt="Image" src="https://github.com/user-attachments/assets/92c1d0ca-5dc6-4e4c-a073-aad3e599d3ab" />
 
