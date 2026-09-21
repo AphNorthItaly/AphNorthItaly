@@ -12,7 +12,7 @@ if you want to be friends, just ask first! I'm glad if I made friends 😺
 
 If I ever feel uncomfortable around you, I can block you because *I block freely.* 😼
 
-<img width="155" height="23" alt="Image" src="https://github.com/user-attachments/assets/ef766488-6a4b-4010-8d29-d21a28bfdee8"><img width="155" height="23" alt="Image" src="https://github.com/user-attachments/assets/ef766488-6a4b-4010-8d29-d21a28bfdee8" />
+<img width="145" height="20" alt="Image" src="https://github.com/user-attachments/assets/ef766488-6a4b-4010-8d29-d21a28bfdee8"><img width="145" height="20" alt="Image" src="https://github.com/user-attachments/assets/ef766488-6a4b-4010-8d29-d21a28bfdee8" />
 
 
 [StrawPage](https://v-vvargas67.straw.page/) | [AtaBook](https://aphnorthitaly.atabook.org/) 
