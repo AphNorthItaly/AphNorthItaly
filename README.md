@@ -3,14 +3,14 @@
 
 <img width="350" height="29" alt="Image" src="https://github.com/user-attachments/assets/92c1d0ca-5dc6-4e4c-a073-aad3e599d3ab" />
 
-my name is Feliciano Vargas! you can call me Ita, Mätt or anything 😽
-I fictkin as Feliciano Vargas (Italy). if you're also a fictkin of him, PLEASE DNI! (kins please iwec)
+my name is Feliciano Vargas! you can call me Ita, Mätt or anything (´ω`)
+<br>I fictkin as Feliciano Vargas (Italy). if you're also a fictkin of him, STRICTLY DNI. kins are fine as long as you didn't mention it
 
-Mostly offtab / afk!! interact b4 sending request n feel free to c+h unless there's a boundary in my name 😿
+Mostly offtab / afk!! interact b4 sending request n feel free to c+h unless there's a boundary in my name 
 
-if you want to be friends, just ask first! I'm glad if I made friends 😺
+I'm shy to interact first, if I ever made you uncomfortable I'm so sorry （；へ：）
 
-If I ever feel uncomfortable around you, I can block you because *I block freely.* 😼
+If I ever feel uncomfortable around you, I can block you because *I block freely.* 
 
 <img width="145" height="20" alt="Image" src="https://github.com/user-attachments/assets/ef766488-6a4b-4010-8d29-d21a28bfdee8"><img width="145" height="20" alt="Image" src="https://github.com/user-attachments/assets/ef766488-6a4b-4010-8d29-d21a28bfdee8" />
 
