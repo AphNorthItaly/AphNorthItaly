@@ -4,7 +4,7 @@
 <img width="350" height="29" alt="Image" src="https://github.com/user-attachments/assets/92c1d0ca-5dc6-4e4c-a073-aad3e599d3ab" />
 
 my name is Feliciano Vargas! you can call me Ita, Zian or anything (´ω`)
-<br>I fictkin as Feliciano Vargas (Italy). if you're also a fictkin of him, STRICTLY DNI. kins are fine as long as you didn't mention it
+<br>I fictkin as Feliciano Vargas (Italy) and I prefer to not interact with doubles. if you use italy ponies you might get hidden from me(15min) I'm sorry
 
 Mostly offtab / afk!! interact b4 sending request n feel free to c+h unless there's a boundary in my name 
 
