@@ -1,7 +1,6 @@
 ## 🍝 Ve, ciao ! 
 <div align="center">
   <img src="https://github.com/user-attachments/assets/92c1d0ca-5dc6-4e4c-a073-aad3e599d3ab" alt="Description" width="[350]" height="[29]"
-</div>
 
 [StrawPage](https://v-vvargas67.straw.page/) | [AtaBook](https://aphnorthitaly.atabook.org/) 
 
