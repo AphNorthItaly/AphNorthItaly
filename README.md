@@ -6,6 +6,7 @@
 
 [Discord](https://discord.gg/https://discord.gg/4RUHkE8s) | [Pinterest](https://pinterest.com/v_vvargas67) | [TikTok](https://tiktok.com/@v_vvargas67) 
 
+<img width="270" height="11" alt="Image" src="https://github.com/user-attachments/assets/028483e2-7177-4773-a898-f23edf0ffb8f" />
 <div align="center">
   <img src="https://github.com/user-attachments/assets/ecf8e06f-d011-4356-a8cb-f7ee8ce48516" alt="Description" width="[244]" height="[136]"
 </div>
