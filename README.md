@@ -1,19 +1,7 @@
-## 🍝 Ciao !! 
+## 🍝 Ve, ciao ! 
 <img width="240" height="20" alt="Image" src="https://github.com/user-attachments/assets/e3d65eb7-6d7a-4d5d-8bc0-6b6446adcbcf" />
 
 <img width="350" height="29" alt="Image" src="https://github.com/user-attachments/assets/92c1d0ca-5dc6-4e4c-a073-aad3e599d3ab" />
-
-my name is Feliciano Vargas! you can call me Ita, Zian or anything (´ω`) YES IM THE ITALY WITH A RED DOT ON MY HEAD!!!!!!
-<br>I fictkin as Feliciano Vargas (Italy) and I prefer to not interact with doubles. if you use italy ponies you might get hidden from me(15min) I'm sorry
-
-Mostly offtab / afk!! interact b4 sending request n feel free to c+h unless there's a boundary in my name 
-
-I'm shy to interact first and I really like to c+h anyone if they have it on their name, if I ever made you uncomfortable I'm so sorry （；へ：）
-
-also I block freely 💕
-
-<img width="145" height="20" alt="Image" src="https://github.com/user-attachments/assets/ef766488-6a4b-4010-8d29-d21a28bfdee8"><img width="145" height="20" alt="Image" src="https://github.com/user-attachments/assets/ef766488-6a4b-4010-8d29-d21a28bfdee8" />
-
 
 [StrawPage](https://v-vvargas67.straw.page/) | [AtaBook](https://aphnorthitaly.atabook.org/) 
 
