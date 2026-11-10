@@ -12,5 +12,5 @@
 <img width="540" height="38" alt="Image" src="https://github.com/user-attachments/assets/23d67620-49c1-49ea-a598-1a813ea952f8" />
 </div>
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=redaction+50&duration=4000&pause=1000&color=96354B&width=435&lines=%E2%80%9CHey+Nana%2C+%E2%80%9D;%E2%80%9CI+still+think+about+you+everyday...%E2%80%9D" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=sans&duration=1000&pause=900&color=96354BC7&width=435&lines=%22Hey+Nana%2C%22;%22I+still+think+about+you+everyday.%22" alt="Typing SVG" /></a>
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
