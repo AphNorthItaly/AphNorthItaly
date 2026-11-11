@@ -2,7 +2,7 @@
 <div align="center">
   <img src="https://github.com/user-attachments/assets/92c1d0ca-5dc6-4e4c-a073-aad3e599d3ab" alt="Description" width="[350]" height="[29]"
 
-<br>[StrawPage](https://v-vvargas67.straw.page/) | [AtaBook](https://aphnorthitaly.atabook.org/) 
+<br>[StrawPage](https://hearts4felichu.straw.page/) | [AtaBook](https://aphnorthitaly.atabook.org/) 
 
 [Discord](https://discord.gg/https://discord.gg/4RUHkE8s) | [Pinterest](https://pinterest.com/hearts4felichu) | [TikTok](https://tiktok.com/@hearts4felichu) 
 
