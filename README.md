@@ -1,16 +1,14 @@
 ## 🍝 Ve, ciao ! 
 <div align="center">
-  <img src="https://github.com/user-attachments/assets/92c1d0ca-5dc6-4e4c-a073-aad3e599d3ab" alt="Description" width="[350]" height="[29]"
+  <img width="465" height="34" alt="luv" src="https://github.com/user-attachments/assets/a6dd8806-22ac-4afe-b984-6462f65cf75c" />
+
+  <br>$$ \textcolor{#96354b}{\text{hai I'm felichu}} $$
 
 <br>[StrawPage](https://hearts4felichu.straw.page/) | [AtaBook](https://aphnorthitaly.atabook.org/) 
 
-[Discord](https://discord.gg/https://discord.gg/4RUHkE8s) | [Pinterest](https://pinterest.com/hearts4felichu) | [TikTok](https://tiktok.com/@hearts4felichu) 
-
 <img width="270" height="11" alt="Image" src="https://github.com/user-attachments/assets/028483e2-7177-4773-a898-f23edf0ffb8f" />
 <div align="center">
-  <img src="https://github.com/user-attachments/assets/ecf8e06f-d011-4356-a8cb-f7ee8ce48516" alt="Description" width="[244]" height="[136]"
-<img width="540" height="38" alt="Image" src="https://github.com/user-attachments/assets/23d67620-49c1-49ea-a598-1a813ea952f8" />
-</div>
-
+ 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=sans&duration=1000&pause=900&color=DE4E6F&width=435&lines=%22Hey+Nana%2C%22;%22I+still+think+about+you+everyday.%22" alt="Typing SVG" /></a>
+</div>
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
