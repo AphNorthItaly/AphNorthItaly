@@ -4,7 +4,7 @@
 
   <br>hai I'm Felichu or Vargas, preferred to be called Feli
   && I luvluv mai bf Yuan/Ludz !! (ˊᗜˋ*)♡
-<br>[StrawPage](https://hearts4felichu.straw.page/) <img width="39" height="38" alt="tumblr_4e370fbf976df3d46dc0341c26e9c93b_cf7cbbb3_75" src="https://github.com/user-attachments/assets/a7255301-f28c-4a2b-a88e-aa78a89da7a6" /> [AtaBook](https://aphnorthitaly.atabook.org/) 
+<br>[StrawPage](https://hearts4felichu.straw.page/) <img width="20" height="19" alt="tumblr_4e370fbf976df3d46dc0341c26e9c93b_cf7cbbb3_75" src="https://github.com/user-attachments/assets/a7255301-f28c-4a2b-a88e-aa78a89da7a6" /> [AtaBook](https://aphnorthitaly.atabook.org/) 
 
 <img width="97" height="20" alt="1b67c0f9" src="https://github.com/user-attachments/assets/970a894d-df23-4a36-886e-b376e727aad9" />
 <div align="center">
