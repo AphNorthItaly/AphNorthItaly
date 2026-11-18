@@ -1,10 +1,9 @@
-## 🍝 Ve, ciao ! 
+## 🍝
 <div align="center">
   <img width="465" height="34" alt="luv" src="https://github.com/user-attachments/assets/a6dd8806-22ac-4afe-b984-6462f65cf75c" />
 
-  <br>$$ \textcolor{#96354b}{\text{hai I'm felichu}} $$
-$$ \textcolor{#96354b}{\text{he/they , enfp-t}} $$
-
+  <br>$$ \textcolor{#96354b}{\text{hai I'm felichu (´ω`)ᕤ he/they ☆ }} $$
+<br>$$ \textcolor{#96354b}{\text{i luvluv Yuan/Ludz ♡}} $$
 <br>[StrawPage](https://hearts4felichu.straw.page/) | [AtaBook](https://aphnorthitaly.atabook.org/) 
 
 <img width="270" height="11" alt="Image" src="https://github.com/user-attachments/assets/028483e2-7177-4773-a898-f23edf0ffb8f" />
