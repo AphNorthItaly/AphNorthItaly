@@ -3,6 +3,7 @@
   <img width="465" height="34" alt="luv" src="https://github.com/user-attachments/assets/a6dd8806-22ac-4afe-b984-6462f65cf75c" />
 
   <br>$$ \textcolor{#96354b}{\text{hai I'm felichu}} $$
+$$ \textcolor{#96354b}{\text{he/they , enfp-t}} $$
 
 <br>[StrawPage](https://hearts4felichu.straw.page/) | [AtaBook](https://aphnorthitaly.atabook.org/) 
 
